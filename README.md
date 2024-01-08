@@ -1,1 +1,1 @@
-I'm Billy Zoellers [@billyzoellers](https://twitter.com/billyzoellers) 👋 
+I'm Billy Zoellers [@bzoel](https://twitter.com/bzoel) 👋 
